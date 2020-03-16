@@ -2,4 +2,6 @@ theme: jekyll-theme-minimal
 
 title: "Sunny and Lucy are getting married!"
 
-lang: en
+lang: "en"
+
+google_analytics: "UA-45390081-10"
