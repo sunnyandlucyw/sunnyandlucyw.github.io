@@ -8,6 +8,6 @@ When we had to cancel our wedding last year it was only weeks away and all plans
 
 Invitations were sent out last week, please get your RSVPs back to us ASAP.
 
-Although we love your children, unfortunately we cannot accommodate them at the venue. We hope you see this as an opportunity to let your hair down and party with us. If you need to make arrangements for the care of your children, please contact Little Wonders (www.littlewondersaustralia.com).
+Although we love your children, unfortunately we cannot accommodate them at the venue. We hope you see this as an opportunity to let your hair down and party with us. If you need to make arrangements for the care of your children, please contact [Little Wonders](www.littlewondersaustralia.com).
 
 See you there! ❤️
